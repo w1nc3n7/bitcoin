@@ -18,4 +18,9 @@ https://www.viabtc.com/tools/txaccelerator
 
 ~~https://www.bitcoinjumper.com~~
 
+https://btctxaccelerator.com/
+
+https://fujn.com/
+
+
 
